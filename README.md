@@ -19,5 +19,5 @@ I am committed to continuous learning and expanding my knowledge in web developm
 ### 📫 Connect with Me
 Let's connect! Feel free to reach out on [LinkedIn](https://www.linkedin.com/in/samuel-gifford/) I'm always open to new opportunities, collaborations, and discussions about technology and coding.
 
-I am Looking forward to the exciting journey ahead in the world of web development! 🚀
+I am looking forward to the exciting journey ahead in the world of web development! 🚀
 
